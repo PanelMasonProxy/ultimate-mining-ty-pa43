@@ -1,4 +1,4 @@
-
+ultimate mining tycoon instant Scripts is the best ultimate mining tycoon Script, featuring speed and infinite resources. Safe and powerful for all
 
 
 
